@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @adnan241203
-- 👀 I’m interested exploring new Domains.
+- 👀 I’m interested Exploring New Domains.
 - 🌱 I’m currently learning Java , Connectivity tools and It's frameworks 
 - 📫 How to reach me adnanadnan2412@gmail.com
 
